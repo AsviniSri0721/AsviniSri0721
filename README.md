@@ -2,9 +2,9 @@
 
  Hello Everyone !!! 👋
 
- I'm an Ungraduate, Developer, an Enviromentalist 🍃 !!!
+ I'm an Developer, an Enviromentalist 🍃 !!!
 
-- 📜 Studying at SLIIT ♥ 
+- 📜 Fresh Graduate at SLIIT ♥ 
 - 🌊 Nature Lover
 
 
